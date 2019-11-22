@@ -37,7 +37,9 @@ Q1: So you're finishing up your time in this CSCC program.  Why did you decide t
 
 Q2: I _love_ to travel.  Tell me a bit about your favorite travel destination so far.  What's on your travel bucket list?
 
-* _Mark_: St. John U.S. Virgin Islands was awesome. I want to go to space.  Especially the Moon.       Dreamed of it my whole life.
+* _Mark_: St. John U.S. Virgin Islands was awesome. I want to go to space.  Especially the Moon. Dreamed of it my whole life.
+
+*_Mark_:  The trip to St. John was great. We did a little bit of everything. Went to most of the beaches which were all great. Honeymoon Beach is the most famous for a reason.  Postcard perfect.  But go to as many as you can because they are all different. My favorite seemed to be which ever one I was on at the time. Go to Cruz Bay for the Social Life or like us, do a day trip to Virgin Gorda, British V.I. and snorkle on the way back if you are into that sort of thing. Hiking around the old sugar plantations had plenty to see and learn about how the island came to be. It doesn't take long to get to the U.S.V.I. and everyone is extremely nice.     
 
 Q3: Name your favorite member of [The Beatles](https://en.wikipedia.org/wiki/The_Beatles), and your favorite Beatles song.  You do know at least one Beatles song, right?  If you are a Beatles fan, feel free to give me your top 5 or so.
 
